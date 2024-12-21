@@ -1,4 +1,4 @@
-### Hi there 👋
+### plz dont mind me huhu
 
 <!--
 **parchedAlbumen/parchedAlbumen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
